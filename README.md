@@ -1,4 +1,4 @@
-# 2.-12.11.2019-Platforms
+# 2.12.11.2019-Platforms
 
 Tapşırıq:
 1. Videoya baxmaq
